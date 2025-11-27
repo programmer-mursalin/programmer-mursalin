@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **Clone**
 
-- 📫 How to reach me **mursalinshuvo27@gmail.com**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
